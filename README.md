@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @bingo-810
+- 👋 Hi, I’m @810
 - 👀 I’m interested in poems,photograph,and ao on.
 - 🌱 I’m currently learning many math and physics lessons.
 - 💞️ I’m looking to collaborate on I donnot know either.
-- 📫 How to reach me？my wechat is BYM2643812367
+- 📫 How to reach me？my wechat is b8101001
 - 😄 Pronouns: take it easy
 - ⚡ Fun fact: hhahhaa
 
